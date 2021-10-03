@@ -1,0 +1,1 @@
+# ricohard.com
